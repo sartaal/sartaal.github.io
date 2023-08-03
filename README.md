@@ -1,1 +1,0 @@
-# sartaal.github.io
